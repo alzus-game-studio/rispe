@@ -6,7 +6,7 @@ This is a game developed just for fun and learning. Everyone can join to contrib
 
 We invite you to come to our discord channel to create amazing content!
 
-![[Discord](https://discord.gg/GmPwvBdafB)](https://img.shields.io/badge/Join-DIscord-7289DA?style=for-the-badge)
+[![Discord](https://img.shields.io/badge/Join-DIscord-7289DA?style=for-the-badge)](https://discord.gg/GmPwvBdafB)
 
 ## Prologue
 
