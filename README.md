@@ -18,4 +18,6 @@ We invite you to come to our discord channel to create amazing content!
 > 
 > So the kings must be strong, so as not to let the evil of the crown be released on the world. Unfortunately this legend of peace was interrupted.
 > 
-> When the kingdom of Papora lived its greatest boom of harmony and peace, an epidemic affected the kingdom. The current queen acquired a degenerative disease that is getting worse and Rispe, the current crown bearer, embarks on a journey through the 7 great kingdom for saving his wife. Unfortunately, Rispe is seduced by the crown and little by little evil takes hold of him to destroy all of Papora.
+> When the kingdom of Papora lived its greatest boom of harmony and peace, an epidemic affected the kingdom. The current queen acquired a degenerative disease that is getting worse and Rispe, the current crown bearer, embarks on a journey through the 7 great kingdom for saving his wife. Unfortunately, Rispe's entire journey will be a deception of the crown, so that little by little it seizes him and destroys all of Papora.
+
+![Alzus Game Studio Logo](https://i.ibb.co/5LRsK20/Alzus-game-Studio.gif)
